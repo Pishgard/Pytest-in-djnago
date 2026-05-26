@@ -1,3 +1,0 @@
-# pamp46gjtqc615mdvjuehcgwjn596q23
-# oojyfz7rm4n5ryqrw982att1860j
-# k8y4fc5ti8zumdk4imqswp

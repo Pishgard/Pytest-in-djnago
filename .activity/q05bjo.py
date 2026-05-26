@@ -1,3 +1,0 @@
-# db2jvi7ix7bgxvm7sjnt3xk64z3wxadhup
-# pu98e83ut27
-# 8v2948ig1z0d8ajdbxe8602q5ltip2n5doss

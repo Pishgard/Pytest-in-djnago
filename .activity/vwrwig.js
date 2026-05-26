@@ -1,3 +1,0 @@
-# zwlnw2se2f37h2p830n9akjeupe0ujej9
-# txvhlszimtmfdlcqmianmwszfwngzy7yrogpwzyr
-# wycysn8rjagpx21l9kidti
